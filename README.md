@@ -77,6 +77,10 @@ it would take 5 months. Experiments have to be done in world class lab. It requi
 
 
 
+Lastly, wth help of online library and portal. there can be books and files. which can be used for the work, One exampe is given below:
+
+![image](https://github.com/user-attachments/assets/0d826f55-3803-404e-8efe-4814e8082184)
+
 
 
 
