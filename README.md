@@ -1,6 +1,7 @@
 # rd-work
 3 projects
-ist prohect 
+
+1st project: 
 
 
 Preparation of Zeolite polymer composites:
